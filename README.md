@@ -66,7 +66,8 @@ Almost everywhere!
 🌸And thats all!
 
 btw am Kurdish!❤🌻💚 🌷
-![image](https://github.com/Dustyyxb/Eh/assets/153450745/c434086e-500a-4b09-a02b-f112bdf998a3)
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/df5e6f9d-fbf2-470f-a030-1841581e03c1)
+
 
 (please dont make fun of my place I´m so fucking sick of this shit)
 
