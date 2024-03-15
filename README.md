@@ -1,5 +1,5 @@
 # Eh# 💫 About Me:
-![image](https://github.com/Dustyyxb/Eh/assets/153450745/0cf30722-6b73-4a6e-9ece-aac2df288313)
+!![image](https://github.com/Dustyyxb/Eh/assets/153450745/00d00edf-72c3-4a26-8ccc-9ba40710af7e)
 
 💤’‘It’s (*crazy)* what you’ll do for a **Friend**…’’…🎧
 
@@ -20,12 +20,15 @@ Is a !💝𝜧𝜤𝜨𝜣Ŗ🎆 14-17❗️
 
 feel free to 𝜤𝜨𝜞 ,
 
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/ad98bb11-85b0-4466-9e21-ce4aef412ebd)
+
 unless my user states 𝜪𝜯𝜢𝜠Ř𝜔𝜤$𝝨
 
 (am mostly 𝝖Ⓕ𝜥</3)!
 
 ---> A proud 𝜧⊔$𝜞𝜤𝜧! :D
-![image](https://github.com/Dustyyxb/Eh/assets/153450745/6a2ce938-3b0f-43ad-9fff-db3c11829d6b)
+
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/0e7c2454-59d7-44e9-b3ad-3d1db10bea02)
 
 ***Ⓕ𝜜𝜨Đ𝜃𝜧$ i’m in!*** // ....
 
@@ -76,3 +79,4 @@ btw am Kurdish!❤🌻💚 🌷
 (please dont make fun of my place I´m so fucking sick of this shit)
 
 ..Farewell *≧ω≦∽*
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/62474b6c-64d0-4ccc-b8dc-ccaa5ced6c60)
