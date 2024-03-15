@@ -60,6 +60,8 @@ Undertale place ..
 🎈
 Almost everywhere!
 🎵
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/6a93570c-d3c5-46ff-91dd-0cd614625f92)
+
 ***🔆My dearest friends🌀***..;
 
 ; Fos” ottille! , fatima! , shebafre (not talking anymore)
@@ -67,7 +69,8 @@ Almost everywhere!
 🌸And thats all!
 
 btw am Kurdish!❤🌻💚 🌷
-![image](https://github.com/Dustyyxb/Eh/assets/153450745/df5e6f9d-fbf2-470f-a030-1841581e03c1)
+! 
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/1d7c2558-75aa-4d82-9bfa-63b7b7be262b)
 
 
 (please dont make fun of my place I´m so fucking sick of this shit)
