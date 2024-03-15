@@ -1,12 +1,67 @@
 # Eh# 💫 About Me:
-<br>https://camo.githubusercontent.com/745780ca2fc2c0286a5feaaf2f93b46bf5986f7f96ca52d4af6136e2934ab2e9/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f63363433316464633334613966343632343437303737653665653134336265372f653362356230353031623434303533662d35372f73353030783735302f306539383937333364366137623862366462303630663439373338366631633732326431356538662e706e6a<br><br>💤’‘It’s crazy what you’ll do for a Friend…’’…🎧<br><br>https://64.media.tumblr.com/e13c99460cf4ab88fca9cbf40b01e86c/a4a524bc3903c43b-58/s500x750/34810ea06805730f079130e9e664040d0367affb.gifv<br><br>You can call me by Dust or by <br>~ Dusty’🎶! Or any nicknames! :) <br>he / him 💤 Male! (Online)<br> Is a !💝Min0r🎆 14-17❗️<br><br>https://64.media.tumblr.com/0e1f444c2347c0eb4e73412ec3f9eaf9/a4a524bc3903c43b-06/s500x750/a6b52ae46c1b6b3c4b10299b7a1920d1fc445f3c.gifv<br><br>~feel free to int , unless my user states otherwise (am mostly afk</3)! A proud Muslim! :D <br><br>https://64.media.tumblr.com/9c31688dc7ae3421e379023b6bea27f0/a4a524bc3903c43b-77/s640x960/51b9a528b059f117403194d792a1a4dba53bfbe9.pnj<br><br>Fandoms i’m in! //<br><br>https://64.media.tumblr.com/4e2936c0f1f47d471614443e242691ce/a4a524bc3903c43b-1b/s640x960/9cb72dbb9e37a2561eb999cb78d815b2e17ad308.pnj<br><br>The amazing digital circus!<br>The backrooms (mostly the entities!)<br>Solarballs<br>Countryhumans<br>Countryballs<br>Genshin impact!<br>Honkai: star rail 🎇<br>A bit of Crp!<br>Little of Fnaf and Fnf!<br><br>Undertale and the another universe’s!!<br><br>The mandela catalogue! (Not even a bit but is<br>Interested in the characters! My apologies…)<br>Sonic <br><br><br>Yanderer simulator <br>Hazbin hotel “again a bit… but my friend is teaching me! <3<br><br>..I know alot but i kind of keep forgetting them sorry!<br><br>https://64.media.tumblr.com/0e1f444c2347c0eb4e73412ec3f9eaf9/a4a524bc3903c43b-06/s500x750/a6b52ae46c1b6b3c4b10299b7a1920d1fc445f3c.gifv<br><br>**You can find me..at!!**;; <br><br>The bakery!<br>In rating lines.<br>The country humans place<br>Undertale place<br>Almost everywhere!<br><br>https://64.media.tumblr.com/0e1f444c2347c0eb4e73412ec3f9eaf9/a4a524bc3903c43b-06/s500x750/a6b52ae46c1b6b3c4b10299b7a1920d1fc445f3c.gifv<br><br>🔆My dearest friends🌀..;;            <br><br>Fos” ottille! , fatima! , shebafre (not talking anymore)<br>And thats all!<br><br>https://64.media.tumblr.com/055bb194c5d794417cb961c2ac49f1b9/dd5c179d182204c2-ee/s400x600/d92de0744b850cae8124b2657a41148cc8ac1311.pnj<br><br> btw am Kurdish!<br> ==(Please don’t make fun of my place I am literally so fucking sick of this shit)==…<br>Farewell~<br><br>https://camo.githubusercontent.com/45313b9f44c5514733af22769489d543ae55ad6e20a8f8d2172555c81fa2f9ad/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f30353033366465633831646664626638383637613765396639353662393366352f653362356230353031623434303533662d38312f73353030783735302f316166303936663235643763336130303038373832333033396637373465316263366131356436382e706e6a<br><br><br>credit 
+💤’‘It’s (*crazy)* what you’ll do for a **Friend**…’’…🎧
 
-# 📊 GitHub Stats:
-![](https://github-readme-stats.vercel.app/api?username=Dustyyxb&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://github-readme-streak-stats.herokuapp.com/?user=Dustyyxb&theme=dark&hide_border=false)<br/>
-![](https://github-readme-stats.vercel.app/api/top-langs/?username=Dustyyxb&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
+*..⊗*
 
----
-[![](https://visitcount.itsvg.in/api?id=Dustyyxb&icon=0&color=0)](https://visitcount.itsvg.in)
+You can call me by **Dust** or by ~ ***Dusty***’🎶! Or any nicknames! :)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+√−−−−−−−−−−−∫
+
+𝜢𝜠 / 𝜢𝜤𝜧 💤 𝜞𝜢𝜠𝜰 / 𝜞𝜢𝜠𝜧 ***Male***! (Online)
+
+∾∾∾∾∾∾∾∾∾∾∾
+
+Is a !💝𝜧𝜤𝜨𝜣Ŗ🎆 14-17❗️
+
+!!!!!!!
+
+feel free to 𝜤𝜨𝜞 ,
+
+unless my user states 𝜪𝜯𝜢𝜠Ř𝜔𝜤$𝝨
+
+(am mostly 𝝖Ⓕ𝜥</3)!
+
+---> A proud 𝜧⊔$𝜞𝜤𝜧! :D
+
+***Ⓕ𝜜𝜨Đ𝜃𝜧$ i’m in!*** // ....
+
+The amazing digital circus!
+**The backrooms**
+(mostly the entities!) 
+Solarballs
+Countryhumans
+Countryballs
+Genshin impact!
+**Honkai: star rail**🎇
+A bit of Crp! 
+Little of Fnaf and Fnf!
+Undertale and the another universe’s!! 
+The mandela catalogue! (Not even a bit but is Interested in the characters! My apologies…)
+Sonic
+Yanderer simulator
+Hazbin hotel “again a bit… but my friend is teaching me! <3 .
+.I know alot but i kind of keep forgetting them sorry!
+
+**╭ { - You can find me..at!!;;**
+
+The bakery!‌↩
+
+In rating lines.
+⬆
+The country humans place
+  ∧ 
+Undertale place ..
+🎈
+Almost everywhere!
+🎵
+***🔆My dearest friends🌀***..;
+
+; Fos” ottille! , fatima! , shebafre (not talking anymore)
+
+🌸And thats all!
+
+btw am Kurdish!❤🌻💚 🌷
+
+(please dont make fun of my place I´m so fucking sick of this shit)
+
+..Farewell *≧ω≦∽*
