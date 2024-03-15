@@ -4,6 +4,7 @@
 💤’‘It’s (*crazy)* what you’ll do for a **Friend**…’’…🎧
 
 *..⊗*
+![image](https://github.com/Dustyyxb/Eh/assets/153450745/4906b28a-e511-4780-bdee-3daaa296151d)
 
 You can call me by **Dust** or by ~ ***Dusty***’🎶! Or any nicknames! :)
 
