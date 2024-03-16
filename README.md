@@ -23,6 +23,10 @@ feel free to 𝜤𝜨𝜞 ,
 ![image](https://github.com/Dustyyxb/Eh/assets/153450745/ad98bb11-85b0-4466-9e21-ce4aef412ebd)
 
 unless my user states 𝜪𝜯𝜢𝜠Ř𝜔𝜤$𝝨
+(...
+🟢:..Online feel free to int anytime am here for you.
+⛔:..busy really busy but you can cuddle or hide with me while am back! 
+🌙:..Away, **NOT** on *pc* or **device**, don´t waste your time on trying to int with me i won´t respond, you can still c + h with me if my name says it. 
 
 (am mostly 𝝖Ⓕ𝜥</3)!
 
